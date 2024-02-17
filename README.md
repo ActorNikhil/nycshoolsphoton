@@ -1,1 +1,1 @@
-Please down the zip to repository 
+Please download the zip file 
